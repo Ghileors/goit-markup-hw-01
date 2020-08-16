@@ -1,5 +1,5 @@
 # Вельш-ко́рги
 
-![Happy Corgi](https://cdn.pixabay.com/photo/2019/08/19/07/45/pets-4415649_960_720.jpg)
+![Happy Corgi](https://cdn.pixabay.com/photo/2019/08/19/07/45/dog-4415649_1280.jpg)
 
 **Породы пастушьих собак, происходящие из Уэльса**
